@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨🏻‍💻Student at UBB CS-Math<br>📗Learning About Cyber Security<br>📍Zalău/Cluj<br><br>📲Contact me on any socials<br>
+👨🏻‍💻 Student at UBB CS-Math<br>📗 Learning Cyber Security<br>📍 Zalău/Cluj<br><br>📲Contact me on any socials<br>
 
 
 ## 🌐 Socials:
